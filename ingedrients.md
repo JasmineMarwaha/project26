@@ -1,0 +1,11 @@
+-2 cups of all purpose flour
+-2 cups of sugar
+-3/4 cup of unsweetened cocoa powder
+-2 teaspoons of baking powder
+-1 and 1/2 of teaspoons of baking soda
+-1 teaspoon of salt
+-1 teaspoon espresso powder
+-1 cup milk(buttermilk, almond or coconut);
+-1/2 cup of vegetable oil
+-2 large eggs
+-2 teaspoons of vanilla extract
